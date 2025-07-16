@@ -31,4 +31,4 @@ TNTCloud 是一家专注于 IPLC 专线的海外团队机场（梯恩梯性价�
 💰 **支持支付方式**：支付宝、微信、USDT 转账
 
 
-> TNTCloud - 专业 IPLC 专线机场，畅享极速网络：访问[官网](https://jump.p6p.net/265)订阅。
+> TNTCloud - 专业 IPLC 专线机场，畅享极速网络：访问[官网](https://tiao.bid/265)订阅。
